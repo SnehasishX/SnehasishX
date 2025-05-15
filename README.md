@@ -1,5 +1,5 @@
 # 💫 About Me:
-### Hi there 👋 I'm ShnahasishX<br><br>🎓 CSE student | 🎮 Game design & development enthusiast  <br>I love coding, playing games, and breaking stuff (for fun and learning!)  <br>A crazy, fun-loving guy trying to build cool things 💥  <br>
+### Hi there 👋 I'm SnehasishX<br><br>🎓 CSE student | 🎮 Game design & development enthusiast  <br>I love coding, playing games, and breaking stuff (for fun and learning!)  <br>A crazy, fun-loving guy trying to build cool things 💥  <br>
 
 
 ## 🌐 Socials:
